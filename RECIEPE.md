@@ -1,18 +1,10 @@
-Boil potato in water till it becomes soft and then take it out and peel it also cut it according of your choice.
-Boil Pasta also for few time in water and then rinse it .
-Cut onions now for pasta and fry some peanuts as it will make it taste more good.
+Step 1 Prepare the red sauce and boil the pasta
+To prepare this mouth-watering and spicy pasta recipe, first, you need to prepare the sauce for the pasta. Heat oil in a pan over medium flame and add minced garlic along with chopped red chilli and red chilli flakes in it. Stir and saute for 2 minutes. Take another pan, pour the water and bring it to a boil. Then, add pasta to the boiling water along with salt and oil. Cook the pasta for a few minutes. When it is cooked through, drain the extra water and transfer the pasta in another bowl.
 
-PROCESSING :--
+Step 2 Cook tomatoes along with herbs for 10-12 minutes
+Now, heat the olive oil and add the peeled (or pureed) tomatoes, basil and parsley in the pan. Mix all the ingredients well and let it simmer for 10 minutes until the sauce starts to thicken. When the sauce starts gaining consistency, put off the burner and add salt and black pepper powder to the sauce. Keep the sauce warm. Add the pasta over the warm sauce and toss carefully so that each piece is coated with the sauce.
 
-Now put some Refined oil in kadhai and left till it becomes hot
-and then put pasta,potato,onions together and make it flip without
-stopping for few minutes and then add jeera to it  and again flip 
-for few time and then add smith & jones pasta masala to it and stir
-it well after few time you will find it little red now put salt in it
-and again stir it now put it in your plate and add coriander and
- peanuts to make it more yummy or if you want to add tomatoes you could while putting pasta in karahi.
-
-
-
+Step 3 Pasta is ready to relish
+Cook for a while and then serve the Red Sauce Pasta immediately. If you are someone who likes the cheesy version of pasta, then you can garnish the pasta with some grated Parmesan cheese. To make it more aromatic, you can dry roast a few basil leaves and crush it with some chilli flakes and oregano. This herb fusion will make your pasta even more delectable. Serve it with garlic bread and relish this delicious pasta!
 
   *************Enjoy your pasta hope you liked it :  ) ******************************
