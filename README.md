@@ -1,7 +1,19 @@
 Hi I am going to share a very tasty recipe with you to cook it's my mother's one of special dish she cooks it's Pasta I like pasta much even I think you like pasta too much. It's easy recipe so let's begin.
 Pasta is a type of food typically made from an unleavened dough of wheat flour mixed with water or eggs, and formed into sheets or other shapes, then cooked by boiling or baking.
 
-
+Ingredients:
+Yummy Pasta Reciepe for 4 servings.
+225 gm pasta penne
+4 cloves garlic
+2 teaspoon basil
+3 pinches salt
+2 pinches powdered black pepper
+2 red chilli
+450 gm roma tomato
+1/2 teaspoon chilli flakes
+1 tablespoon parsley
+1 1/2 tablespoon extra virgin olive oil
+3 cup water
 
 Steps:
 Step 1: Prepare the red sauce and boil the pasta
